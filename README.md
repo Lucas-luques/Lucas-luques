@@ -1,6 +1,6 @@
 - 👋 Oi, Eu sou o @Lucas-luques
 - 👀 Tenho o interesse em gambiarra
-- 🌱 Estou aprendendo a ser o homem-orquestra da programação
+- 🌱 Estou aprendendo a ser o homem-orquestra da tecnologia
 - 💞️ Estou procurando colaborar com gambiarra
 - 📫 como chegar até mim? se vira !!
 
